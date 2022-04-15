@@ -13,4 +13,5 @@ Discord - https://discord.gg/6ahaih93
 
 We are not liable for any coins you lost by buying items without checking, flips aren't always perfect
 
-![image](https://user-images.githubusercontent.com/103678413/163500857-41e81219-0c1d-4676-8318-40e106ac45c1.png)
+
+![asdasd](https://user-images.githubusercontent.com/103678413/163501043-0bd6431f-808f-471c-a2d3-4837e3732968.png)
