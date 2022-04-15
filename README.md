@@ -1,5 +1,4 @@
 ![image](https://user-images.githubusercontent.com/103678413/163500519-6172e958-e81c-43a0-9469-1ada36234eef.png)
-
 Download
 A SkyBlock Flipping Mod.
 
