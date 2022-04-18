@@ -11,7 +11,7 @@ A SkyBlock Flipping Mod.
 
 /msc customise - Makes it so you can have customisable chat messages
 
-Discord - https://discord.gg/6ahaih93
+Discord - discord nuked working on a new on
 
 We are not liable for any coins you lost by buying items without checking, flips aren't always perfect
 
