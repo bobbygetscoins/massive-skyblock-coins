@@ -18,3 +18,8 @@ We are not liable for any coins you lost by buying items without checking, flips
 ![asdasdasdasd](https://user-images.githubusercontent.com/103678413/163501179-3d92f455-02b4-437d-81fe-113da365857c.png)
 
 17/04/22 api down check back later for update
+
+
+![image](https://user-images.githubusercontent.com/103678413/163737601-54010bcd-1957-4d80-945d-429babc10967.png)
+
+![image](https://user-images.githubusercontent.com/103678413/163737609-5bd40667-6190-423c-bcfa-7596f1231c55.png)
